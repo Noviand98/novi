@@ -1,0 +1,2 @@
+# novi
+Ya gtu
